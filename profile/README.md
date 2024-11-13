@@ -1,4 +1,4 @@
-# PVZ Fusion APK: Defend Your Garden in a Colorful Tower Defense Adventure 🌻🧟 PVZ Fusion APK MOD 2.1.4 - Download Fusion Edition for Android
+# PVZ Fusion APK MOD 2.1.4 - Download Fusion Edition for Android 🌻🧟
 
 ## [Download PVZ FUSION!](https://tinyurl.com/yc3xcpmw)
 
